@@ -1,1 +1,0 @@
-[정리 링크](https://devaiden.tistory.com/57)
