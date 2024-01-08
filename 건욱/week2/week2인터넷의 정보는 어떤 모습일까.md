@@ -1,1 +1,0 @@
-[2week:인터넷의 정보는 어떤 모습일까??](https://velog.io/@pkw85428/%ED%8C%A8%ED%82%B7%EC%9D%B4%EB%9E%80)
