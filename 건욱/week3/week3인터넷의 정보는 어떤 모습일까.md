@@ -1,0 +1,1 @@
+[3week:인터넷 통신](https://velog.io/@pkw85428/%EC%9D%B8%ED%84%B0%EB%84%B7-%ED%86%B5%EC%8B%A0)
