@@ -1,0 +1,1 @@
+[4week:인터넷 정보](https://velog.io/@rjsdnr2838/%EC%9D%B8%ED%84%B0%EB%84%B7%EC%9D%98-%EC%A0%95%EB%B3%B4%EB%8A%94-%EC%96%B4%EB%96%BB%EA%B2%8C-%EC%9B%80%EC%A7%81%EC%9D%BC%EA%B9%8C)
